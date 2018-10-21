@@ -3,9 +3,3 @@ gag
 eoiwjagawgeaw
 fewa
 iehogwaohgheowa;
-gageawg
-egagag
-egwaghe
-gwaeghha
-gwaegwag
-gwahga;hegwaohge
